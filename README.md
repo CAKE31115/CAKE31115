@@ -1,4 +1,4 @@
-### Hi there I am Sang hyon Park
+### Hi there I am Sanghyon Park
 
 <hr>
 
